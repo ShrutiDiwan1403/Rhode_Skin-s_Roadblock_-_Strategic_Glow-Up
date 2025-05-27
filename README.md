@@ -84,10 +84,14 @@ This case isn’t just about lip balm. It highlights core principles of global b
 ## Conclusion
 
 Rhode Skin’s viral success is no accident. It's the result of smart branding and product quality.
+
 The brand leveraged food-inspired flavors, seasonal lip colors rather than shades tailored to diverse skin tones, and tapped into a Pinterest-style psychology that plays on aesthetic trends and aspiration.
 
-
 But international success requires more than great marketing. Legal strategy, logistics, and cultural fluency will determine whetheRhode becomes a **global skincare staple** or stays a **digital-first niche brand**.
+
+## Components the study covers
+
+**Product focus, data analysis, strategic insight, market research, and problem solving**
 
 
 
